@@ -1,4 +1,4 @@
-### Hi there 👋
+### About me 🎺
 
 I'm a computer science student at the University of Toronto.
 
